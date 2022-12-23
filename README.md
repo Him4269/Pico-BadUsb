@@ -8,4 +8,4 @@ This is all for educational purposses and I do not permit illigal actions
 Rasberry pi Pico: https://geni.us/hSRkzrO (Someones affiliate link)
 
 ## How To: 
-I created a video, link: ____
+I created a video, link: https://www.tiktok.com/@fuckinclown/video/7180155341382995242
